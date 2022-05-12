@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mrnigeria01
+- 👀 I’m interested in public management with interest in applying technology in the public space.
+- 🌱 I’m currently learning Software Development
+- 💞️ I’m looking to collaborate on App development & designs.
+- 📫 You can reach me via ilyasazeezalamu@gmail.com or via +2348181054609.
